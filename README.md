@@ -2,7 +2,7 @@
 - 👀 I’m interested in ...games
 - 🌱 I’m currently learning ...coding
 - 💞️ I’m looking to collaborate on ...no one
-- 📫 How to reach me ...jwshu27051@gmail.com
+- 📫 How to reach me ...jeshu27051@gmail.com
 - 😄 Pronouns: ...jashu
 - ⚡ Fun fact: ...i am student
 
